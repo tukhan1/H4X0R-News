@@ -1,2 +1,3 @@
 # H4X0R-News
-<img src="ttps://user-images.githubusercontent.com/90031554/146681573-21fc1aa6-5b05-4e08-aea6-609301ede895.gif">
+
+![12](https://user-images.githubusercontent.com/90031554/146681623-60e446f7-4152-4715-b725-7ca85ff6ea59.gif)
